@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @lixueliu
+- 👋 Hi, I’m @lixueliu, friends call me LiX
 - 👀 I’m interested in Badminton
 - 🌱 I'm living in Shenzhen, China
